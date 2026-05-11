@@ -1,4 +1,4 @@
-#  
+#  Experience fisch it like never before with fisch it Scripts hidden, the #1 Script. Includes auto-collect and speed for unbeatable performance.
 
 
 
